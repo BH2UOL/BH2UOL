@@ -1,8 +1,7 @@
 ### Hi there 
 
-#           😳😳😳😳😳
-
-# ← Star无情人有情，点个Follow行不行。
+#            😳😳😳😳😳
+← Star无情人有情，点个Follow行不行。
 
 ### GitHub stats
 
